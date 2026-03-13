@@ -1,0 +1,2 @@
+# Guuunayd-nnnnn
+günaydınn mesajıı
